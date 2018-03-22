@@ -1,1 +1,0 @@
-kei hungerndi mensche meh
